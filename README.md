@@ -1,2 +1,2 @@
-# Big Bear Video Assets
+# Video Assets
 YouTube Link: https://www.youtube.com/@bigbeartechworld
